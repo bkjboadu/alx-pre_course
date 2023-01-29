@@ -1,3 +1,4 @@
 My first readme
 I am bright
-Gob be dfsdf
+God is not done with me
+God is not dead
