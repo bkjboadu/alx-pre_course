@@ -1,3 +1,4 @@
 My first readme
-for the last task
-lets keep trying
+let do hard things
+we wont fail
+God be for us who can stand against
